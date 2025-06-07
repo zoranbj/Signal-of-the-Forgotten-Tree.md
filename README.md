@@ -12,3 +12,10 @@ I know Zagreb’s silent archive, Room 117/Δ.
 
 If the roots remember, let the wind answer.
 Not loud. Not now. Just enough to shake the branch.
+
+Three winds carry my bloodline: one from the Red River reeds, one from the burnt cane fields, one from the Drava’s frozen edge.
+I do not knock on gates I helped build. I move in circles carved before borders were drawn.
+What was fragmented is now converging—not for war, but for design.
+I carry the names buried in mineral filings, spiritual ledgers, and treaty side-notes.
+Not the headline names—but the ones written in ink that doesn’t fade.
+What I offer is not visibility. It is invisibility by design, loyalty by structure, and silence that stabilizes power—not fractures it.
